@@ -4,4 +4,4 @@
 💼 Trabalho atualmente na área do design gráfico e criação de ilustrações!
 
 🧿⭐ Estou sempre tentando ser uma pessoa melhor ⭐🧿
-![linguagens](https://github.com/GeohS2/GeohS2/assets/135173596/ae585d27-9089-4c70-9e1b-f6b9503f73a0)
+![linguagens](https://github.com/GeohS2/GeohS2/assets/135173596/25a30476-ea8c-42aa-b8c0-4a0a74e9c0da)
